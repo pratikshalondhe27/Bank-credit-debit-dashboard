@@ -60,7 +60,7 @@ To visualize and compare **credit and debit transactions** across banks, branche
 **Pratiksha Londhe**  
 💼 RPA Developer | Data Analyst | Power BI & Tableau Enthusiast  
 📧 [pratikshalondhe227@gmail.com](mailto:pratikshalondhe227@gmail.com)  
-🌐 [linkedin.com/in/pratiksha-londhe](https://linkedin.com/in/pratiksha-londhe)
+🌐 [linkedin.com/in/pratiksha-londhe](https://www.linkedin.com/in/pratiksha-londhe-ab5a69391/)
 
 ---
 
